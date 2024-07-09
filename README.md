@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on HTML & Jest.
-- 📫 How to reach me email direct message me!
+- 📫 How to reach me @ https://www.linkedin.com/in/sybersie/
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have a twin brother. 
 
